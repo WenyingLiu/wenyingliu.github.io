@@ -1,3 +1,3 @@
-wenyingliu.github.io
+Wenying Liu's personal page on github
 ====================
-Vicky's personal page on github
+Photos by Wenying Liu
